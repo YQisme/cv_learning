@@ -1,3 +1,3 @@
-<<<<<<qqq
+
 eeee
 eqwe
